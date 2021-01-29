@@ -1,0 +1,1 @@
+# AI_rote_study_note
